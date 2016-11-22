@@ -1,0 +1,1 @@
+# Nekolik-postrehu-k-teorii-odpovedi-na-polozku
